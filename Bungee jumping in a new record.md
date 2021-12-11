@@ -1,0 +1,1 @@
+There was this activity in Go Vacation called <b>bungee jumping</b>. I thought it might be fun doing so. But if I am correct, I got <b>less than 0.05 inches</b> from the ground. I am not even sure that I can recall getting a <i><b>0.00 inches</b></i> from the ground! You could say that <i>I actually touched the ground</i>!
